@@ -1,6 +1,7 @@
 ## 22:09[Huerta] whispers: Another Ph*dei fan? Sigh. . .Eww
-<img width="800" height="450" alt="IMG_2338" src="https://github.com/user-attachments/assets/fa48a68b-cc55-4224-b4cc-794904f64ff0" />
 
+<img width="800" height="450" alt="IMG_2338" src="https://github.com/user-attachments/assets/fa48a68b-cc55-4224-b4cc-794904f64ff0" />
+THANK YOU XIAO <3333333333
 
 <!--
 **Phaedei/Phaedei** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
