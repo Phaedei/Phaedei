@@ -1,4 +1,5 @@
 ## 22:09[Huerta] whispers: Another Ph*dei fan? Sigh. . .Eww
+<img width="800" height="450" alt="IMG_2338" src="https://github.com/user-attachments/assets/fa48a68b-cc55-4224-b4cc-794904f64ff0" />
 
 
 <!--
